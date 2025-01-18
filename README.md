@@ -1,6 +1,7 @@
 -  the queen of bebeland(kølly)
 -  math/compsci<3
 -  studying c#, java. made a small local website
+-  trying my best to get to know unity
 -  god help me finish school
 -  i have 2 cats
 -  :P
